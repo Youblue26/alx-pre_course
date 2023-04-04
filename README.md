@@ -1,1 +1,1 @@
-I am happy to study software
+I am happy
